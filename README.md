@@ -1,0 +1,1 @@
+# minitool-video-converter-license-key
